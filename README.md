@@ -1,8 +1,8 @@
-- 👋 Hi, I’m VenneGen-sama
+- 👋 Yo, wassup? My name is VenneGen, u can call me Venne
 - 👀 I’m interested in, nobody...
 - 🌱 I’m currently learning how not to live:^
 - 💞️ I’m looking to collaborate on... no no no no, keep quiet!
-- 📫 How to reach me⬇️⬇️
+- 📫 Social Media that i use⬇️⬇️
 
 - - 🔗[Discord](https://discord.gg/29HR28ZcWt)
   - 🔗[Instagram](https://www.instagram.com/venne.gen/)
